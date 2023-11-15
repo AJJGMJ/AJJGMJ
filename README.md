@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @AJJGMJ
+- 👀 I’m interested in Mathematics
+- 🌱 I’m currently learning Maths at QMUL
